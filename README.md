@@ -1,0 +1,2 @@
+# NCERT-Solutions-for-Class-8-Civics
+This is the smart way of the education online learning. By this study material students can improve his knowledge. We are gives you all study material, get the answer of your textbook. If you have any problem in finding the correct answer of the NCERT Solution for Class 8 Civics textbook. Here you can find complete syllabus all subjects sample papers, revision notes, NCERT Solution, online tuition and videos etc. also you can read NCERT book online in this section. https://www.scholarslearning.com/registration.php
